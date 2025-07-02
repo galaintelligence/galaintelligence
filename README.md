@@ -33,7 +33,7 @@ Our solutions leverage the latest advancements in:
 ## ⏳ Coming Soon
 
 We’re working on making our powerful tools available to the public.  
-**[Join the waitlist to get early access!](#)**
+**[Join the waitlist to get early access!](https://shieldloom.com)**
 
 ---
 
